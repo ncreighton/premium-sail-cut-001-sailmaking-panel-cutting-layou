@@ -1,0 +1,2 @@
+# premium-sail-cut-001-sailmaking-panel-cutting-layou
+Tired of fabric waste and manual cutting errors that cost you time and money? The Sailmaking Panel Cutting Layout Design Tracker turns your Notion into a precision cutting command center.  This template eliminates disorganized layouts and costly mistakes by providing a structured system to track every panel's dimensions, cut status, and fabric yiel
